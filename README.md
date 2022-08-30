@@ -1,3 +1,3 @@
 - 👋 ola!!! meu nome é  @ternoskilui.
-- 👀 estou interesado aprimorar minhas tecnicas naprogramação.
+- 👀 estou interesado em aprimorar minhas tecnicas na programação.
 - 🌱 estou aprendendo a progamar recentemente.
